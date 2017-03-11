@@ -1,0 +1,28 @@
+I never hear that one ^+^
+is dead
+\
+ Without the Chance of Life\
+ Afresh annihilating me\
+ That mightiest Belief,\
+ \
+ Too mighty for the Daily mind\
+ That tilling its’ abyss,\
+ Had Madness, had it once or, Twice\
+ The ^+^
+yawning Consciousness
+\
+ \
+ Beliefs are Bandaged, like the Tongue\
+ When Terror were it told\
+ in any Tone commensurate\
+ Would strike us instant Dead –\
+ \
+ I do not know the man so bold\
+ He dare in ^+^
+lonely Place
+\
+ That awful stranger – Consciousness\
+ ^+^
+Deliberately face –
+\
+
